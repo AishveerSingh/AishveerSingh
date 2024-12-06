@@ -56,7 +56,7 @@
 ## 📫 **Contact Me**
 - 📧 **Email**: [aishveerchaney@gmail.com](mailto:aishveerchaney@gmail.com)  
 - 💼 **LinkedIn**: [View Profile](https://www.linkedin.com/in/aishveer-singh21)  
-- 📱 **Phone**: +91 8872925105  
+
 
 ---
 
